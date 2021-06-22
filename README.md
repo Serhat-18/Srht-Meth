@@ -4,7 +4,7 @@ FiveM De Ne Kadar Aradıysam Disc uyumlu Meth Bulamadım Bende Yapma Kararı Ald
 
 Umarım İşinize Yarar Destek İçin Discord Üzerinden İletişim Kurabilirsiniz
 
-✦$erhat/18'E#6666
+✦$erhat/18' E#6666
 
 https://discord.gg/jmqkY55Ynw
 
